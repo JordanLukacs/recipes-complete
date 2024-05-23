@@ -28,6 +28,23 @@ Instructions:
 4. Bake for 20-25 minutes or until lightly browned and bubbly.
 5. Serve hot with tortilla chips, pita chips, or crackers.
 
+### SPAM Hawaiian Skillet 
+
+Ingredients: 
+- 1 (12-ounce) can SPAM® with Real HORMEL® Bacon diced
+- 1 cup chopped pineapple
+- 1 cup chopped mango
+- 1/2 teaspoon cumin
+- 1/2 teaspoon smoked paprika
+- 1/2 teaspoon salt
+- 1/2 teaspoon garlic salt
+- Hot cooked rice
+- Balsamic glaze
+
+Instructions: 
+1. In large skillet over medium-high heat, cook SPAM® with Real HORMEL® Bacon, pineapple, mango, cumin, smoked paprika, salt and garlic powder 6 to 8 minutes or until nicely browned.
+2. Serve over rice. Drizzle with balsamic glaze.
+
 ### Bruschetta
 
 Ingredients:
